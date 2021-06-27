@@ -13,7 +13,7 @@
 
 - 📫 You can mail me at- **adikmks57@gmail.com**
 
-- ⚡ Fun fact **Professional overthinker XD**
+- ⚡ Fun fact- **I'm a Professional overthinker 😁**
 
 
 <h3 align="left">Languages and Tools- </h3>
